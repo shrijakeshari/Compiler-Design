@@ -1,4 +1,4 @@
-telgu       -   shreeja
+telgu       -   shrija
 
 hindi/ide   -   prabjot, sarvesh
 
